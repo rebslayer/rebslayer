@@ -1,1 +1,1 @@
-[![wsg gang](hGjvLnAV.png)](https://soundcloud.com/rebslayer)
+[![wsg gang](Error-Generator_HjujjS3hPA.png)](https://soundcloud.com/rebslayer)
